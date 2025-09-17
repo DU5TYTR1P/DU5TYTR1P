@@ -17,3 +17,7 @@
 </div>
 
 ###
+
+<h4 align="left">ㅤ         𓈒    ୭ৎ    ᥴᥲ𝗍s  ᥱyᥱs    𝅄    🪡      ۪   ݁   𓈒 <br><br>ㅤㅤ ۪      𝅄     ꒰  태형  ꒱    ۪   ݁  𝟷𝟷 : 𝟷𝟷   ݁   ۪    ୧<br><br>..୨🌷♡⁠˖⁠꒱🍥.·° ` ` Hi..! Uhm.. Bassie here. Big fan of dw, dod, etc. As you can tell, my fictkin is bassie ^_^, will follow any Cocoa ) Bassie accs..! ` `</h4>
+
+###
